@@ -1,2 +1,2 @@
 # CWAcces 
-Here are the update and downloadable files for programs made by VPeti1
+Here are the update and extra files for programs made by VPeti1
